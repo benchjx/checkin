@@ -1,4 +1,4 @@
-# checkin
+# checkin--------------广州、深圳、上海、北京等地三网。
 
 https://www.hostloc.com/thread-505027-1-1.html
 
